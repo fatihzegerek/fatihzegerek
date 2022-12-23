@@ -1,0 +1,5 @@
+- Hey guys, I’m @fatihzegerek
+- I’m interested in CODING? What a surprise?
+- I’m currently a student at Bilkent University Department of Business Administration 
+- I’m looking to learn more about coding and we will see how the journey will go 
+- How to reach me: dispatch some mail to me
